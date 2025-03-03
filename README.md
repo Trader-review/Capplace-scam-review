@@ -10,7 +10,7 @@ In this article, we’ll analyze Capplace’s regulatory status, trading conditi
 
 
 
-![image]()
+![image](https://github.com/Trader-review/Capplace-scam-review/blob/220cdf801717d3af92cfc88fcd9454f0864ce559/capplace%20home%20screen.jpg)
 
 Is Capplace a Scam or a Legitimate Broker?
 --------------------
